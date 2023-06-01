@@ -1,1 +1,0 @@
-### November 2022 Tech Talk
